@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @yahorchik
 - 📫 How to reach me: egorkopysh12@gmail.com or telegram: @Mayshok
